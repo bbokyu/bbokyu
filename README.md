@@ -1,2 +1,2 @@
-## Ahoy, matey! Ready to set sail 🌊⚓️
+## Ahoy, there! Ready to set sail? 🌊⚓️
 
